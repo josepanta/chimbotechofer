@@ -1,0 +1,2 @@
+# chimbotechofer
+Trabajo de Tendencias 
